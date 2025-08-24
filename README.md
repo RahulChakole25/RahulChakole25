@@ -18,7 +18,7 @@ I am a **Web Analytics Expert** with 11+ years of experience helping global bran
 
 My passion lies in understanding customer journeys, optimizing conversions, and measuring campaign success. I bridge the gap between business goals and technical execution—empowering teams to make data-driven decisions.
 
-**Next Career Milestone:** Leverage my expertise in Dubai’s fast-growing digital ecosystem.
+**Next Career Milestone:** Leverage my expertise in fast-growing digital ecosystem.
 
 ---
 
